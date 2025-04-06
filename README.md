@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...software developing  
 - 🌱 I’m currently learning ...Master's of computer applications
 - 💞️ I’m looking to collaborate on ... my share my knowledge and valuable skills in reputed companies.
-- 📫 How to reach me ...you can get with my email and my contact number
+- 📫 How to reach me ...you can get with my email (yryadav51@gmail.com)
 - 😄 Pronouns: ...YR
 - ⚡ Fun fact: ...intrested in shayari..,listening songs
 
